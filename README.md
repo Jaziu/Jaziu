@@ -1,5 +1,2 @@
-### Hi there 👋
+### Student of Poznań University of Economics and Business
 
-<!--
-Poznań University of Economics and Business
--->
