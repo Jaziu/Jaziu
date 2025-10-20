@@ -1,2 +1,2 @@
-### Student of Poznań University of Economics and Business
+### Student of SGH - Warsaw School of Economics
 
