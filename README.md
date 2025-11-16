@@ -1,2 +1,2 @@
-### Student of SGH - Warsaw School of Economics
+### Student @ SGH - Warsaw School of Economics
 
